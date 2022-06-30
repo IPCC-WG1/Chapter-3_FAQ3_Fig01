@@ -1,1 +1,0 @@
-# Chapter-3_FAQ3_Fig01
